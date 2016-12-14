@@ -7,6 +7,4 @@ Carlos Enrique Guerra Cazún 7056-5055
 Kevin Nelson Torres Landaverde
 21241481
 
-landainitpy@gmail.com
-Salazar Castro, 
-Maria
+Karen Colorado
