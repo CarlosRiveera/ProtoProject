@@ -8,3 +8,5 @@ Kevin Nelson Torres Landaverde
 21241481
 
 Karen Colorado
+Diego Alejandro Iraheta Iraheta
+72421211
